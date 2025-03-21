@@ -25,6 +25,7 @@ from pull ~6 and on, night of prog march 21st
 * missed recycler, missed bomb pull 20
 * missed recycler, pull 21
 * pull 30, ran into bombshell
+
 **shawnzvk**:
 * misplayed, should have told tanks to move cause area was cursed as shit pull 12
 * not sure if misplayed or if i was actively yoinked from pull 21, first set of balls.
@@ -54,4 +55,3 @@ from pull ~6 and on, night of prog march 21st
 **ambiguous**:
 * pull 27, couldnt really see who was at blame
 * pull 29, didnt catch it no good pov
-* 
